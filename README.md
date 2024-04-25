@@ -1,4 +1,4 @@
-# Challenge Natura
+<img src="https://i.ibb.co/t390GhB/imagem-2024-04-25-190801471.png" alt="Imagem Descrição" style="width: 100%;">
 
 ## Bem-vindo(a) ao Challenge Natura!
 
